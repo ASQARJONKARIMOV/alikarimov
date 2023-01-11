@@ -1,0 +1,2 @@
+# alikarimov
+dasturchi
